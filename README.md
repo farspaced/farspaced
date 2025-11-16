@@ -16,3 +16,5 @@
 <div class="grid">
 <div class="box">
 <h3>this is a wip, ill add a dni list later when i feel like it</h3>
+
+if u want my disc or any other socials, whisp me ^_^ thankies for reading
