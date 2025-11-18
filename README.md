@@ -9,6 +9,8 @@
 <h1>hallo im luka <3!</h1>
 <p class="lead">i'm a hardcore diehard yume, my yumelist is on my strawpage. some of my yumes arent listed but i will probably hide u if u yume any of my bfs</p>
 <div class="meta">
+gay guy 2000. he/him pronouns only thank yew. i looove kissing boys
+ 
 <div class="pill">im the big 17, under 15 please just dont interact with me. i dont feel comfortable with it</div>
 <div class="pill">fandom int HOWEVER if ur under 17 do not talk to me about DoL 😭 i feel very iffy talking about it with people younger than me</div>
 <div class="pill">as stated in my bio, im a proshipper. idgaf abt antis, if ur fine w me being a pro u can int</div>
